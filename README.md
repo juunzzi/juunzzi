@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi I'm juunzzi. contact me [here](https://www.instagram.com/juunzziofficial/) & [here](wnsgur8397@naver.com)
 
 <!--
 **juunzzi/juunzzi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
