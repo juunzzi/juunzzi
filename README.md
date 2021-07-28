@@ -1,4 +1,6 @@
-### 😄 Hi I'm juunzzi. contact me [here](https://www.instagram.com/juunzziofficial/) & [here](wnsgur8397@naver.com) 😄
+### 😄 Hi I'm juunzzi. contact me [here](https://www.instagram.com/juunzziofficial/) & [here](https://velog.io/@rat8397) 😄
+
+### 📖 Portpolio [click](https://spiffy-manuscript-d2b.notion.site/Junzzi-99a5d2d022e14091a405a022b193d7a3)
 
 <!--
 **juunzzi/juunzzi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
