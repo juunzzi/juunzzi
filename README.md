@@ -2,7 +2,6 @@
 
 ### 📖 Portfolio [click](https://spiffy-manuscript-d2b.notion.site/Junzzi-99a5d2d022e14091a405a022b193d7a3)
 
-### 📄 CV [click](https://spiffy-manuscript-d2b.notion.site/e3783acfcea240f3a123d6c746bd127c)
 
 <!--
 **juunzzi/juunzzi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
