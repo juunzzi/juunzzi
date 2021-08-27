@@ -1,4 +1,4 @@
-### 😄 Hi I'm juunzzi. contact me [here](https://www.instagram.com/juunzziofficial/) & [here](https://velog.io/@rat8397) 😄
+### 😄 Hi I'm juunzzi. contact me [insta](https://www.instagram.com/juunzziofficial/) & [blog](https://velog.io/@rat8397) 😄
 
 ### 📖 Portfolio [click](https://spiffy-manuscript-d2b.notion.site/Junzzi-99a5d2d022e14091a405a022b193d7a3)
 
