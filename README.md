@@ -2,7 +2,7 @@
 
 ### 😄 Hi I'm juunzzi. contact me [insta](https://www.instagram.com/juunzziofficial/) & [blog](https://velog.io/@rat8397) 😄
 
-### 📖 [Portfolio](https://evanescent-beechnut-9b3.notion.site/Juunzzi-e841e1d9c4544b3188d8f6a24fb977af) 
+### 📖 [Portfolio](https://www.notion.so/Juunzzi-e841e1d9c4544b3188d8f6a24fb977af) 
 
 ### 😍 Blogging & Documentation (나의 자랑)
 
