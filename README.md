@@ -4,7 +4,7 @@
 
 ### 📖 [Portfolio](https://www.notion.so/Juunzzi-e841e1d9c4544b3188d8f6a24fb977af) 
 
-### 😍 Blogging & Documentation (나의 자랑)
+### 😍 Blogging & Documentation
 
 
 - [꼭꼭 - Context API 잘 사용해보기](https://velog.io/@rat8397/%EA%BC%AD%EA%BC%AD-Context-API-%EC%9E%98-%EC%82%AC%EC%9A%A9%ED%95%B4%EB%B3%B4%EA%B8%B0)
